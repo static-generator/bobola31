@@ -4,9 +4,3 @@
 > Pacol, Naga City
 ---
 
-*My Interests*
-
--Drawing
-
--Reading
-
